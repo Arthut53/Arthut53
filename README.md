@@ -8,6 +8,5 @@
 - 📫 How to contact me: arthurmansonetto@gmail.com
 - ⚡ Fun fact: While one eye sleeps the other is coding
 
-## Hello , I'm Arthur Mansonetto
 
 
