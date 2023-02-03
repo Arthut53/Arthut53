@@ -11,10 +11,3 @@
 ## Hello , I'm Arthur Mansonetto
 
 
-  
-
-## Contact
- <br> <br> 
-
-arthurmansonetto@gmail.com
-
